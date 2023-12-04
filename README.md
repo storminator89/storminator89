@@ -1,7 +1,4 @@
 ## Hey 👋, I'm Patrick Meyhöfer  
-  
-
-
 
 ### Glad to see you here!  
 I am an experienced senior IT trainer with an extensive background in blended learning. I was one of the co-founders of the JobRouter Academy and have developed many courses in the field of digitalisation and process design automation with JobRouter. 
